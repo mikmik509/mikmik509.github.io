@@ -12,3 +12,12 @@ Ana Mikaela Bolivar
 
 > ***Credits to Yizheng Ke, very pretty artworks <33***
 
+### fav songs 😍 (well, some of them)
+
+- seoul- RM (prod. HONNE) https://youtu.be/F8wI5ZosdRA
+- Still With You- Jungkook https://youtu.be/VxHkydPsyjY
+- EVERYTHING- The Black Skirts https://youtu.be/Aq_gsctWHtQ
+- Tek It- Cafuné https://youtu.be/1Kcoia22hdg
+- Agust D- Agust D https://youtu.be/3Y_Eiyg4bfk
+- People- Agust D https://youtu.be/sHbl6mt6X80
+- Decalcomanie- MAMAMOO https://youtu.be/wK1i-ckkYAQ
