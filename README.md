@@ -21,7 +21,7 @@ Ana Mikaela Bolivar
 - ੈ✩‧₊˚[EVERYTHING- The Black Skirts](https://youtu.be/Aq_gsctWHtQ)
 - ੈ✩‧₊˚[Tek It- Cafuné](https://youtu.be/1Kcoia22hdg)
 - ੈ✩‧₊˚[AGUST D- Agust D](https://youtu.be/3Y_Eiyg4bfk)
-> **The song AGUST D, contains offensive lyrics (many, many curse words), so feel free to not listen to it, if ever you actually end up listening to these songs.**
+> **The song "AGUST D", contains offensive lyrics (many, many curse words), so feel free to not listen to it, if ever you actually end up listening to these songs.**
 - ੈ✩‧₊˚[People- Agust D](https://youtu.be/R17A4j733Pc)
 - ੈ✩‧₊˚[Decalcomanie- MAMAMOO](https://youtu.be/wK1i-ckkYAQ)
 - ੈ✩‧₊˚[Estranghero- Cup of Joe](https://youtu.be/vpCILVbYQA0)
