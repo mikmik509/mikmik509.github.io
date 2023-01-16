@@ -16,6 +16,8 @@ Ana Mikaela Bolivar
 
 >My music taste is pretty much all over the place ᕦ(ò_óˇ)ᕤ
 
+>**Turn on the captions for some songs.**
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/F8wI5ZosdRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/CoT3UWHL4fM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
@@ -39,8 +41,6 @@ Ana Mikaela Bolivar
 <iframe width="560" height="315" src="https://www.youtube.com/embed/EShpWv2NOjU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 ***I listen to a lot of OPM but I didn't want to flood the page with all of the songs that I like***
-
->**Turn on the captions for some songs.**
 
 ### ༊*·˚ About me
 
