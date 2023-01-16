@@ -33,7 +33,7 @@ Ana Mikaela Bolivar
 ### ༊*·˚ About me
 
 - I am very interested in Astrology and Tarot ! (✿´‿`)
-- On the topic of Astrology, my Sun is in Taurus ♉︎, Moon in Cancer ♋︎, and a Gemini Rising ♊︎!
+- On the topic of Astrology, I am a Taurus Sun ♉︎, a Cancer Moon ♋︎, and a Gemini Rising ♊︎!
 
    ***Alam ko na 'di niyo 'yan gets, okay lang 'yan /hj***
 - I like to do digital art, it is personally easier for me (づ￣ ³￣)づ
