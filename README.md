@@ -16,7 +16,7 @@ Ana Mikaela Bolivar
 
 >My music taste is pretty much all over the place ᕦ(ò_óˇ)ᕤ
 
-- ੈ✩‧₊˚[seoul- RM (prod. HONNE)](https://youtu.be/F8wI5ZosdRA)
+- ੈ✩‧₊˚<iframe width="560" height="315" src="https://www.youtube.com/embed/F8wI5ZosdRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 - ੈ✩‧₊˚[Still With You- Jungkook](https://youtu.be/CoT3UWHL4fM)
 - ੈ✩‧₊˚[EVERYTHING- The Black Skirts](https://youtu.be/Aq_gsctWHtQ)
 - ੈ✩‧₊˚[Tek It- Cafuné](https://youtu.be/1Kcoia22hdg)
@@ -29,6 +29,8 @@ Ana Mikaela Bolivar
 - ੈ✩‧₊˚[Hold Me Tight- BTS](https://youtu.be/EShpWv2NOjU)
 
 ***I listen to a lot of OPM but I didn't want to flood the page with all of the songs that I like***
+
+>**Turn on the captions for some songs.**
 
 ### ༊*·˚ About me
 
