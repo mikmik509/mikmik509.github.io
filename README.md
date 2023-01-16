@@ -18,16 +18,25 @@ Ana Mikaela Bolivar
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/F8wI5ZosdRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
-- ੈ✩‧₊˚[Still With You- Jungkook](https://youtu.be/CoT3UWHL4fM)
-- ੈ✩‧₊˚[EVERYTHING- The Black Skirts](https://youtu.be/Aq_gsctWHtQ)
-- ੈ✩‧₊˚[Tek It- Cafuné](https://youtu.be/1Kcoia22hdg)
-- ੈ✩‧₊˚[AGUST D- Agust D](https://youtu.be/3Y_Eiyg4bfk)
+<iframe width="560" height="315" src="https://www.youtube.com/embed/CoT3UWHL4fM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Aq_gsctWHtQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1Kcoia22hdg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3Y_Eiyg4bfk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
 > **The song "AGUST D", contains offensive lyrics (many, many curse words), so feel free to not listen to it, if ever you actually end up listening to these songs.**
-- ੈ✩‧₊˚[People- Agust D](https://youtu.be/R17A4j733Pc)
-- ੈ✩‧₊˚[Decalcomanie- MAMAMOO](https://youtu.be/wK1i-ckkYAQ)
-- ੈ✩‧₊˚[Estranghero- Cup of Joe](https://youtu.be/vpCILVbYQA0)
-- ੈ✩‧₊˚[Autumn Leaves- BTS](https://youtu.be/Z1rT_exMPX8)
-- ੈ✩‧₊˚[Hold Me Tight- BTS](https://youtu.be/EShpWv2NOjU)
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/R17A4j733Pc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wK1i-ckkYAQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vpCILVbYQA0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Z1rT_exMPX8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/EShpWv2NOjU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 ***I listen to a lot of OPM but I didn't want to flood the page with all of the songs that I like***
 
