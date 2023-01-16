@@ -37,6 +37,6 @@ Ana Mikaela Bolivar
 
    ***Alam ko na 'di niyo 'yan gets, okay lang 'yan /hj***
 - I like to do digital art, it is personally easier for me (づ￣ ³￣)づ
-- I like- **ehem** I LOVE COOKING, BAKING, OR FOOD IN GENERAL, I HAVE AN UNEXPLAINABLE LOVE FOR IT 🙏😭
+- I like- **ehem** I LOVE COOKING, BAKING, OR FOOD IN GENERAL, I HAVE SO MUCH LOVE FOR IT 🙏😭
 - I also like reading and writing, though, I never end up finishing an idea (☞ﾟ∀ﾟ)☞
 - The best of them all is sleeping- sleeping is just so ***chef's kiss***
